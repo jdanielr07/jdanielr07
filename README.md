@@ -1,5 +1,5 @@
 ![Image](https://github.com/user-attachments/assets/b46a7f31-4fd5-4e24-bc53-f506b5d14c20)
-[![LinkedIn Followers](https://img.shields.io/badge/LinkedIn_Followers-500+-0A66C2?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/jose-daniel-rojas-morera-a74a51221/)
+[![LinkedIn Followers](https://img.shields.io/badge/LinkedIn_Followers-487-0A66C2?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/jose-daniel-rojas-morera-a74a51221/)
 
 ## Hi, I am Daniel👋
 
