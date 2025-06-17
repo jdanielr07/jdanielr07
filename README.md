@@ -1,3 +1,5 @@
+![Image](https://github.com/user-attachments/assets/b46a7f31-4fd5-4e24-bc53-f506b5d14c20)
+
 ## Hi, I am Daniel👋
 
 ### 👨🏻‍💻 &nbsp;About Me
